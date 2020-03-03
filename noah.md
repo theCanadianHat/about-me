@@ -1,3 +1,3 @@
 # About Me
  
- My name is Noah. There is not much interesting about me.
+ My name is Noah. There is not much interesting about me. My favorite aninmal is ...
